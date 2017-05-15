@@ -1,1 +1,1 @@
-Massive Attack is a great band.
+Massive Attack is an excellent band.
